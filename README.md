@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 fahad music 」──
+    ──「 ꜰᴀʜᴀᴅ x ᴍᴜꜱɪᴄ  」──
 </h2>
 
 <p align="center">
